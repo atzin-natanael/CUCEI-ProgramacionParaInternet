@@ -1,1 +1,0 @@
-# atzin-pacheco.github.io
